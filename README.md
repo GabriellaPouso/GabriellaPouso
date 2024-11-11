@@ -47,4 +47,4 @@ Minhas habilidades interpessoais me ajudam a colaborar com outros desenvolvedore
 
 ## 🌐 Conecte-se Comigo
 
-Sinta-se à vontade para entrar em contato comigo pelo [LinkedIn](https://www.linkedin.com/in/gabriella-pouso-pcd/) ou e-mail. Será um prazer trocar ideias e explorar novas oportunidades!
+Sinta-se à vontade para entrar em contato comigo pelo [LinkedIn](https://www.linkedin.com/in/gabriella-pouso-pcd/) ou pelo e-mail: pouso.gabi@gmail.com. Será um prazer trocar ideias e explorar novas oportunidades!
